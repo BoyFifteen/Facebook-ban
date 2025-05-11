@@ -6,7 +6,7 @@
 - Account recovery available
 - 24/7 service 
 - Competitive prices
-- DM:https://t.me/BoyFten
+- DM:https://t.me/BoyFten 
   
  
  
