@@ -4,7 +4,7 @@
 - Speed and safety
 - Full guarantee
 - Account recovery available
-- 24/7 service 
+- 24/7 service
 - Competitive prices 
 - DM:https://t.me/BoyFten
 
